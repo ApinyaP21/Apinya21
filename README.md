@@ -1,7 +1,7 @@
 # Professional Summary
 Over 20 years of mechanical engineering experience with ~14 years in Oil & Gas and Renewable Energy EPC projects. Experienced in leading mechanical design teams through FEED → Detailed Design → EPC → Commissioning, vendor technical evaluations, ASME/API-based static equipment design, and construction support.
 
-Seeking senior-level roles aligned with THB 120,000–130,000 salary band.
+Seeking senior-level roles aligned with professional experience.
 
 Core Strengths
 FEED, Detailed Design, EPC Execution
